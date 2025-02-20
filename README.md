@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME: นางสาวเก็จมณี ตรียุทธ
+# STUDENT ID: 670610746
